@@ -1,2 +1,2 @@
 # Aarti
-big eyes and teeth
+shakti and aarti not good friend
